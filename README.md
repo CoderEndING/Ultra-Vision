@@ -21,6 +21,12 @@
 
 ![算法细节](https://github.com/Floatkyun/Ultra-Vision/blob/main/img/算法细节.jpg) 
 
+
+# 友情广告位 [直达链接](https://platform.ai.hixinghai.top/)
+<img width="1280" height="512" alt="7299a30215e07f4c5cc076f69732fb94_720" src="https://github.com/user-attachments/assets/06c3bc74-30e6-4374-b251-ddf47b1861a1" />
+
+
+
 # 1. 作品简介
 
 ## 1.1 关键性能指标
